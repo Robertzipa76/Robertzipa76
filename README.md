@@ -1,4 +1,4 @@
-![](/stargathering2.jpg)
+![](/lightprism.jpg)
 
 
 - 👋 Hi, I’m Robert
